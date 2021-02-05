@@ -1,16 +1,11 @@
 ## Where to find me
 - info@biek.org
-- https://mark.biek.org
-- VIA Studio Blog
-- [@antelopelovefan](https://twitter.com/antelopelovefan)
-- [@explodingvim](https://twitter.com/explodingvim)
+- https://mark.biek.org/links/
 
 ## About Me
 😄 Pronouns: he/him
 
 #BlackLivesMatter
-
-(CV - https://mark.biek.org/cv/)
 
 I've been working full time as a software developer since 1998 and I love the intellectual thrill of writing code and solving problems.
 
