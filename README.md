@@ -1,6 +1,6 @@
 ## Where to find me
 - info@biek.org
-- https://mark.biek.org/links/
+- https://mark.biek.org/
 
 ## About Me
 😄 Pronouns: he/him
