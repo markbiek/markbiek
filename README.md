@@ -2,6 +2,10 @@
 - info@biek.org
 - https://mark.biek.org/
 
+### I don't have accounts on any freelance sites</h2>
+
+If you happen to see a Mark Biek with my picture on Upwork or any other freelance sites, that's a fake profile. I don't currently do work through any freelance sites, though I am occasionally available for contract work.
+
 ## About Me
 😄 Pronouns: he/him
 
