@@ -1,6 +1,6 @@
 ## Where to find me
-- info@biek.org
-- https://mark.biek.org/
+- markbiek@duck.com
+- [https://markbiek.link/](https://markbiek.link/)
 
 ### I don't have accounts on any freelance sites</h2>
 
