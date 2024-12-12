@@ -1,6 +1,6 @@
 ## Where to find me
 - markbiek@duck.com
-- [https://markbiek.link/](https://markbiek.link/)](https://gravatar.com/markbiek)
+- https://gravatar.com/markbiek
 
 ### I don't have accounts on any freelance sites</h2>
 
